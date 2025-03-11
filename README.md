@@ -25,4 +25,4 @@ This repository is dedicated to my **Self-Development Plan**, a structured frame
 3. **Leverage the Resources & Tools** to enhance learning and execution.  
 
 ### 🔗 Connect & Collaborate  
-I’d love to hear feedback or collaborate on self-development strategies. Feel free to connect via **[LinkedIn](https://www.linkedin.com/in/ankitasahoo)** or contribute to this repository!  
+I’d love to hear feedback or collaborate on self-development strategies. Feel free to connect via **[LinkedIn](https://www.linkedin.com/in/ankita-sahoo-57716215b/)** or contribute to this repository!  
